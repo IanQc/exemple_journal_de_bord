@@ -2,19 +2,28 @@
 ## Plan de présentation
 
 ### Présentation
-Parlez de vous. 
-
+Je suis tres sociable, j'adore tout ce qui est plein air et j'excel dans beaucoup de sports, surtout les sports d'équipes. 
+J'aime les jeux vidéos fps et aventure comme COD, Halo, Escape from tarkov et sea of thieves.
+Réalité virtuel: Blade and sorcery. pavlov
+Musique: Acdc: Shoot to thrill, Metallica: Nothing Else Mathers, Gun n Roses: Civil War-Sweet Child O'Mine
 ### Intérêts dans le domaine
-Parlez de vos intérêts en multimédia. 
-
+Effets Spéciaux
+Modele 3d
+Animation 3d
+Effets Sonore
+Réalité virtuel
 ### Emplois qui vous intéressent
-Nommez deux emplois.
+Effets Spéciaux (Disney ou 343 Industries)
+Modele 3d (Disney ou 343 Industries)
+Animation 3d (Disney ou 343 Industries)
+Effets Sonore (Disney ou 343 Industries)
+Réalité virtuel (OCULUS)
 
 ### Identification
-Nommez une entreprise et un artiste auxquels vous vous identifiez et expliquez pourquoi. 
+Disney: Leur création récente des derniers Star Wars sont extraordinaires dans les effets visuels et surtout sonores(pas l'histoire), ce qui m'inspire énormément et c'est aussi la cause de ma présence dans cette technique
 
 ### Dans 5 ans
-Où vous voyez-vous dans 5 ans? 
+UQAM
 
 ### Projets
-Expliquez un ou des projets que vous aimeriez faire. 
+Je voudrais faire un courts-métrage d'un film de Star Wars
